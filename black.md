@@ -1,1 +1,1 @@
-color black 
+I plan to go to reserve starbucks located in Danville. I heard that it is really nice. I am really excited to go there. 
